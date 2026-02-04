@@ -1,4 +1,4 @@
-# seibin, Aejin Kwon, & SHIFT UP – Hypertube
+# seibin、Aejin Kwon、SHIFT UP – Hypertube
 
 > **歌詞登録ステータス：同期歌詞あり**
 
